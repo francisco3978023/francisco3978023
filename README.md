@@ -5,5 +5,6 @@
 - 🌱 atualmente curso o alura
 - estou no 2 ano do EM
 
+![_](https://media1.tenor.com/m/9yy0MfToKfMAAAAd/renato-augusto-ra8.gif)
 
-https://media1.tenor.com/m/g0kMau3yfwUAAAAC/renato-augusto-melhor-meia-do-brasil-renato-augusto-melhor-meio-campista-do-brasil.gif
+
